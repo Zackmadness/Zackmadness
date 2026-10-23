@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Zackmadness
+- 👋 Hi, I’m @Zackery
 - 👀 I’m interested in History
 - 🌱 I’m currently learning European History
 - 💞️ I’m looking to collaborate on ...
